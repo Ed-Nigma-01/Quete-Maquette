@@ -1,0 +1,3 @@
+Alors on peut certainement faire mieux, mais manque de temps pour faire un travail propre.
+
+Merci d'être indulgent...
